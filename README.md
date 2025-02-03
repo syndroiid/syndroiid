@@ -3,7 +3,7 @@
 </p>
 <br>
 <div id="header" align="center">
-<a href="https://github.com/ghoolze"><img src="https://i.imgur.com/9BJfWJx.jpeg" alt="https://i.imgur.com/9BJfWJx.jpeg" border="0" width= height=></a> 
+<a href="https://github.com/ghoolze"><img src="https://files.catbox.moe/0mvxnw.jpg" alt="https://files.catbox.moe/0mvxnw.jpg" border="0" width= height=></a> 
 </p>
 
 ---
@@ -17,7 +17,7 @@ he / him <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/tngd
   <p align="left">. .  ——————————— : bisexual ◟ aroace-spec ◟ genderhaze</p>
   <br><br><br>
   <p align="right">
-    !  <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/ED1waSY.gif" alt="https://i.imgur.com/ED1waSY.gif" border="0" width= height=></a> :: read strawpage b4 you friend / interact . . <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/OLaHj0I.gif" alt="https://i.imgur.com/OLaHj0I.gif" border="0" width= height=></a>
+    !  <a href="https://github.com/ghoolze"><img src="https://files.catbox.moe/9rkx8m.webp" alt="https://files.catbox.moe/9rkx8m.webp" border="0" width= height=></a> :: read strawpage b4 you friend / interact . . <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/OLaHj0I.gif" alt="https://i.imgur.com/OLaHj0I.gif" border="0" width= height=></a>
   </p>
   <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/enTyi2f.gif" alt="https://i.imgur.com/enTyi2f.gif" border="0" width= height=></a>
   <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/Yd60vZZ.gif" alt="https://i.imgur.com/Yd60vZZ.gif" border="0' width= height="></a>
