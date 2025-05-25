@@ -23,5 +23,7 @@ he / him <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/tngd
   <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/Yd60vZZ.gif" alt="https://i.imgur.com/Yd60vZZ.gif" border="0' width= height="></a>
 <br><br>
   <p align="center">
-<ins><b>ghoolze on discord</b></ins>
+<ins><b>whyize. on discord</b></ins>
   </p>
+
+IM SORRY IM INACTIVE, I HAVE BAD WIFI AND A BAN 💔💔💔💔
