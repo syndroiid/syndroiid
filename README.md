@@ -1,3 +1,7 @@
+YO IGNORE THIS </33 ANOTHER ACCOUNT SWITCH
+
+---
+
 <p align="left">
   <i>" hey izuku... can i still catch up to you? " </i>
 </p>
@@ -23,7 +27,5 @@ he / him <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/tngd
   <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/Yd60vZZ.gif" alt="https://i.imgur.com/Yd60vZZ.gif" border="0' width= height="></a>
 <br><br>
   <p align="center">
-<ins><b>whyize. on discord</b></ins>
+<ins><b>syndroiid on discord</b></ins>
   </p>
-
-IM SORRY IM INACTIVE, I HAVE BAD WIFI AND A BAN 💔💔💔💔
