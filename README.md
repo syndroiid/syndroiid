@@ -27,5 +27,5 @@ he / him <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/tngd
   <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/Yd60vZZ.gif" alt="https://i.imgur.com/Yd60vZZ.gif" border="0' width= height="></a>
 <br><br>
   <p align="center">
-<ins><b>syndroiid on discord</b></ins>
+<ins><b>@loserboyfriend or @codexyr 4 more updated shtuuuuuf</b></ins>
   </p>
